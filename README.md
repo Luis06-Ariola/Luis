@@ -7,5 +7,4 @@
 
 
 ![PAL A350-1000](https://github.com/user-attachments/assets/bfc2a611-8aa6-4c47-91cb-7354dba99740)
-
-
+![Norway northern lights](https://github.com/user-attachments/assets/913e2fc3-45c1-496c-b2a6-3a665d9779d8)
