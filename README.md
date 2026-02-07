@@ -7,4 +7,10 @@
 
 
 ![PAL A350-1000](https://github.com/user-attachments/assets/bfc2a611-8aa6-4c47-91cb-7354dba99740)
+
+
+
+
+
+
 ![Uploading northern-lights-lofoten-hamnoy-norway-2.jpg…]()
